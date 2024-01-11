@@ -1,0 +1,6 @@
+[Calc AB Self-Study Guide (2) - Google 云端硬盘](https://drive.google.com/drive/folders/1aGD3lum06OeJM2YNmU40clZ-y5r28q-U) 
+ [Khan Academy](https://www.khanacademy.org/math/ap-calculus-ab)
+ [MIT's Open Course Ware](https://ocw.mit.edu/courses/mathematics/18-01sc-single-variable-calculus-fall-2010/)
+[Turk’s Math Stuff (turksmathstuff.com)](https://turksmathstuff.com//)
+[(5) The Organic Chemistry Tutor - YouTube](https://www.youtube.com/c/TheOrganicChemistryTutor)
+[Professor Leonard - YouTube](https://www.youtube.com/@ProfessorLeonard)
